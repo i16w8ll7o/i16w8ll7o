@@ -1,4 +1,4 @@
-![divider-mandala (1)](https://github.com/user-attachments/assets/cad324eb-96a9-4fde-bccf-615bfc8bdf80)![divider-mandala (1)](https://github.com/user-attachments/assets/b8068b4e-20d1-4ec9-ba67-b3958c267cb1)
+![divider-mandala (1)](https://github.com/user-attachments/assets/eab1ec96-6563-4873-bb68-bcf3136d06d1)![divider-mandala (1)](https://github.com/user-attachments/assets/01f3777e-e403-441c-abb2-67f8ced2fff6)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─────── 𖹭.ᐟ ───────
 
@@ -8,5 +8,6 @@
 
 ^_^
 
-![divider-mandala (1)](https://github.com/user-attachments/assets/2f820457-bee3-45b8-b826-99c3393cbd81)![divider-mandala (1)](https://github.com/user-attachments/assets/c9f1343b-82fe-4a07-a07d-f3de59d44d74)
+![divider-mandala (1)](https://github.com/user-attachments/assets/fb9b579d-d2b1-45ea-9e82-59389e043e3a)![divider-mandala (1)](https://github.com/user-attachments/assets/c6b4d124-0960-4ee6-b3be-d194b826f747)
+
 
