@@ -6,8 +6,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfeel free to c+h, int me ! ! !
 
-^_^
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ^_^![6bbfa2a5f8505e4fdde32d513e109dbb](https://github.com/user-attachments/assets/415ce6d4-31ec-43bb-822e-65675e3c8aa6)
+
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ![divider-mandala (1)](https://github.com/user-attachments/assets/fb9b579d-d2b1-45ea-9e82-59389e043e3a)![divider-mandala (1)](https://github.com/user-attachments/assets/c6b4d124-0960-4ee6-b3be-d194b826f747)
-
-
