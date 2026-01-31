@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ![blood-drip-blood](https://github.com/user-attachments/assets/c6cf275d-f519-42ac-a732-1e649d020dd4)
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ![blood-drip-blood](https://github.com/user-attachments/assets/c6cf275d-f519-42ac-a732-1e649d020dd4)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ─────── 𖹭.ᐟ ───────
 
@@ -10,6 +10,6 @@
 
 ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤㅤㅤㅤㅤ^_^![can-gf](https://github.com/user-attachments/assets/ac66839f-71b9-41b8-8a21-0fc70e681b49)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤ![blood-drip-blood](https://github.com/user-attachments/assets/8d7eb211-60e6-48ef-a611-d51bb79b6900)
+ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤ![blood-drip-blood](https://github.com/user-attachments/assets/8d7eb211-60e6-48ef-a611-d51bb79b6900)
 
 
