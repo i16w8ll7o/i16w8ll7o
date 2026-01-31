@@ -6,6 +6,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤfeel free to c+h, int me ! ! !
 
-ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ^_^![a2d8b8e65782d9e6e5d8310297ce7283](https://github.com/user-attachments/assets/78988d2c-0414-48d0-9875-78e3d9a19c10)
+ㅤㅤㅤㅤ ㅤㅤ ㅤㅤㅤㅤ^_^![IMG_4528](https://github.com/user-attachments/assets/28908603-3acc-4075-9165-5480bec738fa)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ![divider-mandala (1)](https://github.com/user-attachments/assets/fb9b579d-d2b1-45ea-9e82-59389e043e3a)![divider-mandala (1)](https://github.com/user-attachments/assets/c6b4d124-0960-4ee6-b3be-d194b826f747)
